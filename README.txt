@@ -1,0 +1,1 @@
+S1 FULL: restored original multi-page design (5 pages after removing the simple-story page), updated letter/flower text, Ye suno Jhol page, and YES celebration effects. No photo section.
